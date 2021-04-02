@@ -1,4 +1,6 @@
 # InstaBrute (The404Hacking):
+👉[![Instagram](https://img.shields.io/badge/INSTAGRAM-FOLLOW-red?style=for-the-badge&logo=instagram)](https://www.instagram.com/shubham_g0sain)👈
+
 <p align="center"><img src="http://forums.windowscentral.com/attachments/instagram/50396d1385186440t-947316_143336859186012_2088783896_n.png"</img></p>
 ## Description:
 
